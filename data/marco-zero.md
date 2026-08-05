@@ -1,15 +1,15 @@
-# Mirante do Alto da Sé
+# Marco Zero
 
 **Categoria**: Passeio
-**Bairro**: Recife
+**Bairro**: Recife Antigo
 **Faixa de preço**: $ (gratuito)
-**Ambiente**: vista panorâmica, romântico
+**Ambiente**: ao ar livre, histórico, vista para o rio
 
 ## Descrição
-Local histórico, aberto com possibilidade de atravessar o rio
+Praça à beira do Rio Capibaribe, no coração do Recife Antigo, com o famoso painel colorido no chão, palco para shows e eventos, e vista para as pontes e prédios históricos ao redor.
 
 ## Ideal para
-Date ao entardecer, passeio cultural, date econômico.
+Date ao entardecer, passeio cultural, date econômico, caminhada com fotos.
 
 ## Endereço
-Marco Zero, Recife Antigo
+Praça Rio Branco (Marco Zero), Recife Antigo, Recife - PE
